@@ -1,0 +1,3 @@
+https://linktr.ee/floridasupplyhortifruti?utm_source=ig&utm_medium=social&utm_content=link_in_bio&fbclid=PAb21jcAT7__xwZG9mAmV4dG4DYWVtAjExAHNydGMGYXBwX2lkDzU2NzA2NzM0MzM1MjQyNwABp1MfAsfaoOaH4i9M2uoN9ly2BN3fiu4XFXL9xz3oTWdd8srVRj3k1MxxqD96_aem_qOCmxuuupdxd70zT2xkAvA
+
+vamos fazer o site dessa empresa ok site institucional vamos faer um site moderno top com a mais alta tecnologia de impacato ok  na pasta imgs tem o logo e o logo com o nome use eles ok estão escrito nome aqui tbm tem o atual site deles nesse link ai se vc quiser ver só pra ver oq eles fazem ok mas vamos mudar totalmente vamos manter cores e as paletas ok 
